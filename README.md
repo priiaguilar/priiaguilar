@@ -5,6 +5,4 @@
 - 🌱 Cursando Tecnologia da Informação
 - 📫 prisousaguilarsiq@gmail.com  
 - 😄 Pronouns: ela/dela
-
-
 -->
